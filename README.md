@@ -91,6 +91,6 @@ Gained research exposure and mentorship experience at NIT, Jalandhar.
 
 ## 👤 Author
 
-**Sargun Kaur**
+**Sargun Kaur** -
 Research Intern, NIT Jalandhar (June – July 2025)
 [GitHub](https://github.com/Sargunnn)
